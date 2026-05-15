@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows secure Effect: time-remapping & export-presets is the best Vegas Pro for PC | Vegas Pro for Windows effect, featuring time-remapping and
 
 
 
